@@ -14,4 +14,4 @@ With over 20 years of experience in consultative sales, IT, and business optimiz
 <p> <b>2011 - 2014 (5yrs) Oracle</b></p>
 <p> <b>2010-2011 Founder Bombay Wraps</b></p>
 <p> <b>1999-2008 (10yrs) IBM </b></p>
-<p> For more see Linkde In - https://www.linkedin.com/in/thepassionatetechnologist/</p>
+<p> For more see Linked In - https://www.linkedin.com/in/thepassionatetechnologist/</p>
